@@ -12,19 +12,12 @@ This starter is using very simple ingredients, just flour and water. No cheap tr
 
 Depending on the temperature of your room, the time to get the starter ready to go will vary. In Belfast (which never goes above 15˚C), 2 weeks is an expected timescale. There's no harm in keeping the starter process going for this amount of time anyway, as time will make the starter even better.
 
-* __day one__: Add 15g Rye Flour, 35g White Flour and 50g water to your clean jar. Stir with a clean spoon and set aside to rest somewhere warm (20-30˚ ideally, as warm as you can get when living in Ireland) with the lid ajar.
-* __day two__ and __day three__: Add 15g Rye Flour, 35g White Flour and 50g water to your mix, stir, and rest for 24 hours, as above.
-* __day four__: You might see some activity now. Pour most of the starter into your bin or compost, leaving about a teaspoon in the jar. Add 30g Rye Flour, 70g White Flour and 100g water to the jar. Rest for 24 hours.
-* __day five__ and __day six__: Some more activity might have occurred. Discard as above, and add 30g Rye Flour, 70g White Flour and 100g water to the jar. Rest for 24 hours.
-* __day seven__ to __day fourteen__: Discard all but a teaspoon, add 30g Rye Flour, 70g White Flour and 100g water, and rest as above. 
+- **day one**: Add 15g Rye Flour, 35g White Flour and 50g water to your clean jar. Stir with a clean spoon and set aside to rest somewhere warm (20-30˚ ideally, as warm as you can get when living in Ireland) with the lid ajar.
+- **day two** and **day three**: Add 15g Rye Flour, 35g White Flour and 50g water to your mix, stir, and rest for 24 hours, as above.
+- **day four**: You might see some activity now. Pour most of the starter into your bin or compost, leaving about a teaspoon in the jar. Add 30g Rye Flour, 70g White Flour and 100g water to the jar. Rest for 24 hours.
+- **day five** and **day six**: Some more activity might have occurred. Discard as above, and add 30g Rye Flour, 70g White Flour and 100g water to the jar. Rest for 24 hours.
+- **day seven** to **day fourteen**: Discard all but a teaspoon, add 30g Rye Flour, 70g White Flour and 100g water, and rest as above.
 
-Between days seven and four teed you should be able to the see the starter raising to approximately double its size. The ideal time to use the starter is when it's at its peak.
-
-
-
-
-
+Between days seven and fourteen you should be able to the see the starter raising to approximately double its size. The ideal time to use the starter is when it's at its peak.
 
 ---
-
-
